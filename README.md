@@ -6,4 +6,6 @@ Organizing at [www.onruby.eu](https://www.onruby.eu/) 💎
 
 Co-Founded [www.penseo.de](https://www.penseo.de/) 🐿
 
-Working at [www.shopify.de](https://www.shopify.de/) 🛍
+Working at [www.shopify.de](https://www.shopify.de/) 🛍 
+
+:point_up: [Shopify is hiring](https://www.shopify.com/careers/)
